@@ -1,0 +1,1 @@
+# ThisIsADealbreakerForMeIfYouLetUrPersonalProblemsConsumeYou-IfSo-StayWithThePersonUreWith
